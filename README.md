@@ -9,3 +9,7 @@ personal information
                           My family is  kind and funny and understandable members.AS i am a single child . So my parents are so
 friendly and soft.Especially my father he is always my first firend.since my both parents leave for work .So my grandparents
 take care of me.I love my grandma so much . 
+ROLE MODEL
+       My role model is Thomas alva edison.He had done many valuable experiments. And no one believed him for the creation
+       of the bulb.He had been teased because people did not beleived him . Ultimately failing thousand time .He found the 
+       revolution of the electrical technology.And also ronaldo also my role model.
