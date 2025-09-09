@@ -6,3 +6,6 @@ personal information
          after 2-3 years of experience .I wish to do ug in abroad. And it sounds like i need tons of knowledge so please guide me sir
          I am bio student so please teach me in your best way. Sir and I also want to compete with IIT like students.
          Sir and i also want to know doing ms in abroad is worth
+                          My family is  kind and funny and understandable members.AS i am a single child . So my parents are so
+friendly and soft.Especially my father he is always my first firend.since my both parents leave for work .So my grandparents
+take care of me.I love my grandma so much . 
