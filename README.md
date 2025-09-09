@@ -13,3 +13,4 @@ ROLE MODEL
        My role model is Thomas alva edison.He had done many valuable experiments. And no one believed him for the creation
        of the bulb.He had been teased because people did not beleived him . Ultimately failing thousand time .He found the 
        revolution of the electrical technology.And also ronaldo also my role model.
+         My kind message to you is ,as a bio student please teach me from the sratch ,please update more details about tech world.And give me more information.sir one question as a 10 year exp why dont you enter IT field
